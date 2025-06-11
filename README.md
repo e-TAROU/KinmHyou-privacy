@@ -1,0 +1,2 @@
+# KinmHyou-privacy
+KinmHyou-privacypolcy
